@@ -1,7 +1,7 @@
-## LU ASS大队
+## What are you 弄啥嘞？？？？
 
 
-![](./resources/team.jpeg)
+![](./resources/team.jpg)
 
 
 
